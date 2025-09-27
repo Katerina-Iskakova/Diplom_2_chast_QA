@@ -1,0 +1,1 @@
+# Diplom_2_chast_QA
